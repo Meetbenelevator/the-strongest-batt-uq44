@@ -1,4 +1,4 @@
-#  
+#  automatic the strongest battlegrounds Scripts is the best the strongest battlegrounds Script, featuring auto-heal and unlimited stamina. Safe and
 
 
 
